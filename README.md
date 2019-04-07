@@ -1,1 +1,0 @@
-# kapil-iitk.github.io
